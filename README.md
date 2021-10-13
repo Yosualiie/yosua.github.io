@@ -1,1 +1,0 @@
-# yosua.github.io
